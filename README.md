@@ -1,1 +1,1 @@
-https://HunterTigerX.github.io/rsschool-cv/cv
+https://huntertigerx.github.io/rsschool-cv/
